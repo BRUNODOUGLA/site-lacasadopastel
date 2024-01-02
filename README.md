@@ -4,8 +4,12 @@
 _Uma felicidade a cada **mordida**_
 
 
-## La Casa do Pastel
-_Cardapio **Online**_
+## Rede social
+[Whatsapp](https://wa.me/message/DONAVRFCVIQYF1)
+
+[Instagran](https://www.instagram.com/invites/contact/?i=cj79owmrz972&utm_content=loetuco)
+
+
 
 
 
